@@ -1,0 +1,2 @@
+# goblok
+tangan kanan tuhan
